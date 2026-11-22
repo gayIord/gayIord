@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-  <img src="https://file.garden/aXu9FpkcPAJchg9c/Pixels/Red/uvv9vk.gif"> sign my <a href="https://zombst.atabook.org">新book</a> ૮ Ꮚ◞ ˔ ◟Ꮚა
+  <img src="https://file.garden/aXu9FpkcPAJchg9c/Pixels/Red/uvv9vk.gif"> sign my <a href="https://zomst.atabook.org">新book</a> ૮ Ꮚ◞ ˔ ◟Ꮚა
 </p>
